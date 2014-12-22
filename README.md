@@ -35,8 +35,18 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The baptizing of the eunuch in three sermons vpon Act. 8. 36. 37. 38. By Samuel Hieron.Hieron, Samue
+
+1. TO MY VERIE worſhipfull good friend GEORGE CHVDLEIGH of Strachley in Deuon Eſquire.
+
 #####Body#####
+
+1. THE BAPTIZING OF THE EVNVCH.
+
+    _ THE FIRST SERMON.
+
+    _ THE SECOND SERMON.
+
+    _ THE THIRD SERMON.
 
 **Types of content**
 
